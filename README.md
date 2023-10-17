@@ -1,0 +1,5 @@
+- 👋 Hi, I’m MILES.
+- 👀 I’m interested in PRAGMATICS.
+- 🌱 I’m currently learning ANALOG.
+- 💞️ I’m looking to collaborate on MESHNET.
+- 📫 How to reach me HERE.
